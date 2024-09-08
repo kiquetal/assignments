@@ -6,6 +6,8 @@
 
 2- I don't feel like cooking tonight
    Neither _do_ I . Shall we go out for dinner? I would love a curry.
+   So would I. Come on Let's go
+
 
 3- I've seen this film before.
    Well, I have not
@@ -30,9 +32,12 @@
 
 7- I didn't go out last night.
    Neither did I. I wass too tired.
-   So did I
+   So was I
 
 8- You aren'tfrom round here, are you?
    No, I'm from Australia
    I don't suppose you like the British weather
    Actually I do like it. I prefer cool weather to hot weather
+
+
+
