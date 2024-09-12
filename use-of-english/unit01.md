@@ -1,0 +1,11 @@
+### Words with preposition
+
+|Adjectives | Nouns | Verbs | - |
+| --------- | ----- | ----- | - |
+| excellent ___ | an answer __ | associate ___ | praise sb ___ sth |
+| experienced ___ | an expert __ | concentrate __ sth | provide sb ___ sth |
+| happy ___ sb | (take) pride ___ | congratulate sb ___ sth | provide sth ___ sb | 
+| happy ___ sth | a reply ___ | cooperate ___ sb | succeed ___ | 
+| proud ___ | a report ___ | deal ___ | supply sb ___ sth | 
+| respected ___ | an opprotunity ___ | include ___ | supply sth ___ sb |
+| responsible ___|
