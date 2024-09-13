@@ -36,5 +36,23 @@ assistant manager.
 
 By the end of this month, I will have ___ living in Madrid for a year. You can't imagine how exciting my life (12) ___ become.
 
-1- has, 2- have, 3- was, 4-was, 5- is, 6- are, 7- be 8- Do, 9- did, 10- were, 11- had
+1- has, 2- had, 3- was, 4-was, 5- is, 6- are, 7- be 8- Do, 9- did, 10- were, 11- been 12- has
+
+### Put the verbsin brackets into the Past Simple, Past progressive, Presenet Perfect Simple or Present PerfectProgressive andcomplete the boxes  with the time words below.
+Use each time word  only once.
+
+1 [  ]  Mary  ___ (have) a bath yesterday evening. I was in the kitchen.
+I ___ (cook) her favourite dish because I ___ (want) to surprise her.
+[  ] she ___ (come) into the kitchen, she could not believe her eyes!.
+
+
+while / was having.
+
+I had cooked ,  wanted.
+
+when / had come, she couldnt believe her eyes
+
+
+
+ 
 
