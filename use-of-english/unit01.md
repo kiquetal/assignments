@@ -50,7 +50,10 @@ while / was having.
 
 I had cooked ,  wanted.
 
-when / had come, she couldnt believe her eyes
+when /  came, she couldnt believe her eyes
+
+
+2 Mum, I ___ (look) for my black belt [ ] the past hour and I [ ]
 
 
 
