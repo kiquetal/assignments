@@ -15,6 +15,11 @@ excellent at, an answer to, associate with praise sb with sth |
 
 experienced at, an expert in , concentrate on sth, provide sb with sth |
 
-happy with sb | pride in  | congratulate sb on sth | provide sth for sb 
+happy for sb | pride in  | congratulate sb on sth | provide sth for sb 
 
+happy with/about sth | a reply to | cooperate with sb | succeed in 
+
+proud of | a report on | deal with | supply sb with sth |
+
+respected for | an opportunity for | include in | supply sth to sb 
 
