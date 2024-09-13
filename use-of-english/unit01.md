@@ -54,6 +54,16 @@ when /  came, she couldnt believe her eyes
 
 
 2 Mum, I ___ (look) for my black belt [ ] the past hour and I [ ]
+___ (not find) it. ___ you (see) it anywhere?
+
+have been looking/ for / still have not found it / have you seen it 
+
+Mother: No but I think you ___ (lend) it to your brother about a week [ ]
+Jim: Oh, you're right He ___ (not) give it back to me. I be the ___ (wear) it all week. Where is he now, Mum?
+Mother: I'm afrak Mark ___ [] ___(leave).
+He ___ (get) up about an hour before you ___ (do)
+
+lent / ago / he has not given it back to me / he has been wearing it all week / has already left /  got / did
 
 
 
