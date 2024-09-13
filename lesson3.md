@@ -74,4 +74,26 @@ I'm not sure what Ava's boyfriend's name is
 Would you mind telling me how much you paid for your new car?
 
 
+### Vocabulary
+
+Josh is a computer __ geek __ so he's been applying for jobs in IT.
+
+If someone tires to annoy me, I prefer to give a 
+__ lilght-hearted response __ rather than get angry
+
+My colleague and I enjoy  a __ good-nature-rivalry __ ove who meets
+our montly targets first
+
+Great news for __ job seekers __ more than 50% of UK companies
+intend to hire new staff this year
+
+I have a __ gut feeling __ that this interview will go very badly.
+
+I don't see __ the point of __ some interveiew questions
+
+It can be difficult to get the right __ work-life balance __ especially if you have a position of responsability in a company
+
+This article gives five __ foolproof __ tips on how to be successful at a job
+interview
+
 
