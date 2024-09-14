@@ -66,6 +66,20 @@ He ___ (get) up about an hour before you ___ (do)
 lent / ago / he has not given it back to me / he has been wearing it all week / has already left /  got / did
 
 
+### Complete the sentence
 
+1- We last went abroad a long time ago.
+
+not -> We did not go abroad in a long time.
+
+2- When did they start living in the suburbs? 
+
+have -> How long have they been living in the suburbs ?
+
+3- It's the first time she has ever had problem with the authorities.
+
+trouble ->  She has not had trouble with the authorities before.
+
+4- 
  
 
