@@ -3,6 +3,7 @@
 
 [SB 134 2A](#sb-134-2a)
 
+[Check the correct form](#exercise-check-the-correct-form)
 
 
 
@@ -73,3 +74,62 @@ It's been raining for all day.
 3- I've been shopping all morning. I'm exhausted.
 My shoes are filthy. I've been working in the garden.
 
+
+#### Exercise Check the correct form
+1- She's worked/ been working here since July
+ [tick]
+
+2- Your mother has phoned/been phoning three times this morning!
+
+[been phoning]
+
+3- The kids are exhausted because they've run / been running around all day
+
+[been running]
+
+4- Tim and Lucy haven't seen / been seeing our new house yet
+
+[seen]
+
+5- I've never met / been meeting her boyfriend. Have you?
+
+[met]
+
+6- It's snowed / been snowing all morning.
+
+[been snowing]
+
+7- Bill has just gone/ been going to work.He won't be back
+till this evening
+
+[has just gone]
+
+8- My sister has lived/ been living alone since her divorse.
+
+[been living]
+
+9- I've read/ been reading all morning. I've now read/ been reading
+100 pages
+
+[been reading] [read]
+
+#### Complete the sentence with the present perfect simple
+or continous of the verb in brackets.
+
+I've bought a new car. Do you like it ?
+
+1- We __ Jack and Ann for years(know)
+
+[have known]
+
+2- You look really hot. __ at the gym (you/ work out)
+
+[have you been working out]
+
+3- Emily __ her homework yet. so I'm afraid she can't go out (not do)
+
+[has not done]
+
+4- They don't live in London. they __ (move)
+
+5- 
