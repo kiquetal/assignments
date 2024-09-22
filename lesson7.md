@@ -132,4 +132,19 @@ I've bought a new car. Do you like it ?
 
 4- They don't live in London. they __ (move)
 
-5- 
+[have moved]
+
+5- I hope they're getting on OK. They __ a lot recently (argue)
+
+[have been arguing]
+
+6- We __ for hours. Is this the right way ? (walk)
+
+[have been walking]
+
+7- Why is my laptop switched on? __ it ? (you / use)
+[have you used ]
+
+8- Oh no! I __ my finger on this knife.(cut)
+
+[have cut]
