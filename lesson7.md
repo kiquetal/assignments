@@ -58,9 +58,12 @@ I've never seen him before.
 I've already told you three times.
 
 3- It's the best book I've ever read.
+
 4- My computer's crashed again.
+
 5- I've known Miria since I was a child.
 My sister has been ill for ten days now.
+
 6- How many Agatha Christi have you read?
 They've been seen each other twice this week.
 
