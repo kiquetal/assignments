@@ -47,4 +47,9 @@ nearly better now. I'll probably go back to work the day
 after tomorrow.
 
 
+Anyways, I' m so glad you're planning on coming to visit next
+summer- it will be lovely to see you! While I've been off work
+___ (think)about what we can do while you're here, and I ___
+
+
 
