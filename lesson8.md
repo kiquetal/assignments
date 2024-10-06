@@ -26,5 +26,25 @@ My brother's really stressed about work, so he hasn't been sleeping well recentl
 
 Georgia hasn't gone to the gym for long - just a few weeks.
 
-- ___ a sore throat for more then a week now (Jaime / have)
+- ___ a sore throat for more than a week now (Jaime / have)
+
+
+
+The letter
+
+Hi Nikola
+Thanks for your email it was a great to hear from you!
+Sorry I haven' t replied until now,
+but I  ___ (not feel) very well recently.
+ I have not been feeling.
+
+I ___ (have) flu and I' m only just getting over it now.
+I have had.
+
+I ___ (not go) to work for a week; I ___ (lie) on the sofa
+at home all day. My mum ___ (look after) me all week, and I' m 
+nearly better now. I'll probably go back to work the day
+after tomorrow.
+
+
 
