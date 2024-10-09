@@ -45,5 +45,28 @@ blind deaf disabled elderly injured rich unemployed young
 
 ##### SB 153
 
+Math the sentences
+
+
+1 I'm goingto dress up tonight. [C]
+
+2 Please hang up your coat [A]
+
+3 These jeans don´t fit me [F]
+
+4 That skirt really suits you [H]
+
+5 Your bag matches your shoes. [G]
+
+6 I need to get changed. [B]
+
+7 Hurry up and get undressed [E]
+
+8 Get up and get dressed. [I]
+
+9 That tie doesnot really go with your shirt. [D]
+
+
+
 
 
