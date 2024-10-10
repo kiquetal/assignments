@@ -66,6 +66,13 @@ Math the sentences
 
 9 That tie doesnot really go with your shirt. [D]
 
+#### WB 17 ACT 2 A
+
+
+
+
+#### WB 18 ACT 2D
+
 
 
 
