@@ -68,6 +68,49 @@ Math the sentences
 
 #### WB 17 ACT 2 A
 
+Order the letters in brackets to make a material. Then complete
+the sentences
+
+1 Jack was wearing a blue __ jacket (NIMED)
+[denim]
+
+2 I prefer to wear light __ shirts in the summer (TTNCOO)
+[cotton]
+
+3 I gave my mum a blouse with a __ colla for her birthday (CEAL)
+[lace]
+
+4 Are you sure those boots are made of __ ? (HTRELEA)
+
+[leather]
+
+5 I never buy __ clothes because they take so long to iron. (NINLE)
+
+[]
+
+6 They gave me a very expensive __ tie as leaving present (LIKS)
+
+[silk]
+
+7 Don't wear your __ jacket outside - it's raining (SEDUE)
+[suede]
+
+8 I really like your new __ jacket. It looks very soft (VVTEEL)
+
+[]
+
+9 My aunt often wears a __ coat, but it isn't real (URF)
+[fur]
+
+10 I always wear a  __ top in the gym - it's the most comfortable (CRALY)
+
+[lycra]
+
+11 My grandfather wears an old __ cardigan around the house in the winter (LELOWNO)
+
+[woollen]
+
+
 
 
 
