@@ -116,7 +116,13 @@ the sentences
 
 #### WB 18 ACT 2D
 
+Complete the text
 
+Last year, I wanted to travel from Madrid to Hamburg to visit a friend.
+I had booked an __ (international flight) from Madrid to FRankfurt and a 
+c__ fl__ (country flight) from Frankfurt to Hamburg. I printed off my b__ p__
+(boarding pass) the day before my flight, and I took it with me to the airport.
+I was able to go straight to security in Departures because I only had 
 
 
 
