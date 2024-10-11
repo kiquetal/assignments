@@ -89,4 +89,39 @@ left.
 7-  The fligh attendant spoke [so / so much / such] softly that I coudln't hear what she was saying
 [so]
 
+#### SB 154
+
+Match the words and definitions
+
+1 [A] Airport terminal
+2 [D] Baggage drop
+3 [I] Baggage reclaim
+4 [C] Check-in desk
+5 [J] Customs
+6 [B] Departures board
+7 [G] Gate
+8 [H] Runway
+9 [E] Security
+10 [F] airline LOunge
+
+A- a building at an airport divided into Arrivals and Departures
+
+B- an electronic display showing flight times and if the flight is on time, boarding, closed or delayed
+
+C- Where you give in any checked-in luggage and are given a boarding pass if you don't already have one
+
+D- Where you take your luggage to check it in if you already have your boarding pass
+
+E- where they check that you are no trying to take prohibited items onto the plane, by scanning your hand luggage
+and making you walk through a metal detector
+
+F- Where passengers who are travelling bsuiness or first clan wait for their flight.
+
+G- Where you show your boarding pass and ID and board your flight
+
+H- Where planes take off and land
+
+I- Where you collect your luggage on arrival, and wehre there are usually trolleys for carrying heavy cases
+
+J- Where your luggage may be checked to see if you are bringing illegal goods into the country.
 
