@@ -30,3 +30,19 @@ to apply for an emergency passport. Meg [was going/ went] to the photo booth whi
 [hurried]
 gate and [got/ had got] on the plane just in time.
 [got]
+
+
+### Put the verb in brackets in the past perfect simple or continouous. If you think both are possible, use the coninous form.
+
+His English was very good. He'd been learning it for five years(learn)
+
+1- I was really fed up because we had been queueing for hours (queue)
+2- She went to the police to report that someone had stolen her bag (steal)
+3- It had been raining all morning. The streets were wet and there were puddles everywhere(rain)
+4- She got to work late becauase she had left her phone at home and had had to go back and get it (leave, have to)
+5- I almost didn't recognize Tony at the party. He had changed a lot since I last saw him(change)
+6- The tourits' faces werre very red. They had been sitting in the sun all morning and they had not put on any sun cream. (sit, not put on)
+7- I could see from their expressions that my paretns had been arguing.(argue)
+8- Jess had a bandage on her arm because she had fallen off her bike that morning(fall)
+9- I was amazed because I had never seen such an enourmous plane before(never see)
+10- How long had you been walking before you realized that you were lost ? (walk)
