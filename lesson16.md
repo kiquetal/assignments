@@ -25,3 +25,8 @@ Nearly: usually indicates proximity to a state or condition
 Hardly can be replaced with barely or scarcely
 Nearly can often be replaced with "almost"
 
+Especially: particularly or to a great extent
+Used to single out one person, thing or situation
+
+
+Specially: for specific purpose
