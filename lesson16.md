@@ -92,3 +92,41 @@ Specially: for specific purpose
 16- I did not finish the exam I was still/ yet writing when the teacher told us to stop
 
 [still]
+
+
+#### Complete the sentences with the following words
+
+[ apparently basically certainly eventually gradually ideally in fact obviously]
+
+1 __ (the main reason is) we have not got enough money to buy our own flat
+
+Basically
+
+2 __ (in a perfect world) we'd each have our own room in the flat, but that isn't possible
+
+Ideally
+
+3 That's __ (without a doubt) the best lobster that I've ever eaten it was delicious
+
+Certainly
+
+4- My sister is __ (little by little) building a new life for herself after her divorce.
+
+Gradually
+
+5- If you keep applying for jobs, you'll find one __ (in the end)
+
+Eventually
+
+6- I thought the meal was going to be expensive but __ (the truth) it was quite reasonable
+
+In fact
+
+7- __ (clearly) her son will move out when he gets a job, but for now he's living with her.
+
+Obviously
+
+8- __ (according to what I' ve heard ) a lot of flights have been cancelled because of the cabin crew strike
+
+Apparently
+ 
