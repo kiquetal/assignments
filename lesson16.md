@@ -129,4 +129,6 @@ Obviously
 8- __ (according to what I' ve heard ) a lot of flights have been cancelled because of the cabin crew strike
 
 Apparently
- 
+
+
+#### Adjective to describe the weather 
