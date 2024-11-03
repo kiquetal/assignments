@@ -55,4 +55,47 @@ __[bright] sunshine, and the next it rains. The rain isn't usually heavy, it's o
 In general it's __[warm] during the day-around 20 C but it can get __ [cool] in the evenings, so you need
 a light jacket.
 
+[chilly, clear, damp, mist, pours]
+
+By October, the temperature starts to fall again, and it can be quite __ [chilly] outside- only 5C or 6C. Some 
+mornings start out with __[mist] in the mountains and near the sea.
+while on others there are __ [clear] skies and you can see for a long way.Towars the end of the autum, 
+the weather can be rather __ [damp] and if often __ [pours] with rain.
+
+- Choose the correct form of the verb.
+
+If Rob [has studied / had studied ] enough he' ll pass the exam easily
+
+[has studied]
+
+If you [aren't feeling / won't  be feeling] better tomorrow, you should go to the doctor's
+[aren' t feeling]
+
+If we're lucky we [have sold/ 'll have sold] our house by Christmas.
+
+[we' ll have sold]
+
+I'll pay for dinnre If I [have / 'll have enough money]
+[I have enough money]
+
+We'll [have scored / be scoring] ten goals by halft-time If we carry on playings like this
+[we will have scored]
+
+Don' t call Sophie now. If it' s eight o' clock she ['ll bath / 'll be bathing ] the baby
+[she will be bathing]
+
+If you don't hurry up, you [don't get / won't get ] to school on time
+[don't get]
+
+You can be fined if you [aren't wearing /  won' t be wearing a seat belt in your car]
+[aren't wearing]
+
+If you go out with wet hair, you ['ll catch / 'll be catching] a cold
+[you will catch]
+
+My suitcase [always gets/ will always get] lost if I have a conneciton flight.
+[alwas gets]
+
+I [won't go / don't go] to work on Monday if my daughter is still ill
+[won't go]
 
