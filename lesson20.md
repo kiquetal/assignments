@@ -19,7 +19,6 @@ Complete the sentences with travel, trip or journey.
 
 [journey]
 
-
 - Phrasal verbs related to air travel
 
 [check in, fill in, get off, get on, pick up (x2) , take off]
@@ -29,3 +28,4 @@ Complete the sentences with travel, trip or journey.
 [checked in ]
 
 3- As soon as I 
+
