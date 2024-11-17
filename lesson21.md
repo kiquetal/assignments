@@ -113,3 +113,36 @@ fire damage.
 and they couldn't see a way down the mountain
 
 [desperate]
+
+
+- Complete the following sentence with one word from the list
+[gobsmacked gutted scared stiff shattered sick of]
+
+1- My sister was a bit [down] after her dance exam
+went badly
+
+2- I'm [sick of] always having to tell my husband to tidy up.
+
+3- Javier was [ scared stiff] when he saw a big dog running
+towards him
+
+4- I couldnt sleep on the flight from New YOrk, I'm absolutely
+[shattered]  today
+
+5- I was totally [gobsmacked] when I heard that Terry and Sarah were getting
+divorced
+
+6- I was [gutted] when I did not get a place at university.
+I cried for days.
+
+
+### Grammar unreal situations
+
+1- Our boss [was / would be ] more popular if he did not take himself so
+seriously
+[would be]
+
+2- I would have got cold if I [did not take/ i had not taken] a jacket
+[had not taken]
+
+3- 
