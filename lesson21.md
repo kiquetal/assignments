@@ -49,3 +49,67 @@ the bottom of your bag
 
 [lonely]
 
+Down
+
+2- You weren't offended a job after you went for the interview
+[disappointed]
+
+5- You're studying abroad and you're missing your family.
+
+[homesick]
+
+6- It's pouring with rain and a friend offers you to drive you
+to your home
+
+[grateful]
+
+7- Your flight has already been delayed three times,
+then it's cancelled.
+
+[fed up]
+
+
+
+- Replace the underlined words with an adjective from the list
+[ astonished, bewildered, delighted, desperate, devastated, horrified,
+overwhelmed,  stunned, thrilled]
+
+1- They're [very excited] to be travelling around South America after
+saving for so long.
+[thrilled]
+
+2- When you buy a new phone, it's easy to get [very confused] by all the
+different options and contracts.
+
+[bewildered]
+
+3- People were [extremely shocked and disgusted] when they heard about the
+terrorist attack
+
+[horrified]
+
+4- Andy was [amazed] when his parents gave him a car for his birthday
+
+[astonished]
+
+5- She was [so surprised that she could not react] when she saw the
+fire damage.
+
+[overwhelmed]
+
+6- Olivia was [incredibly pleased] when she got promoted
+
+[delighted]
+
+7- My brother was [extremely upset] when his wife left him
+
+[devastated]
+
+8- The soldier's wife [so happy that she did not know how to react] when her
+ husband suddenly arrived home after six months away
+[stunned]
+
+9- The climbers were [losing hope]. It was getting dark, snowing heavily,
+and they couldn't see a way down the mountain
+
+[desperate]
