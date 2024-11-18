@@ -145,4 +145,35 @@ seriously
 2- I would have got cold if I [did not take/ i had not taken] a jacket
 [had not taken]
 
-3- 
+3- You [had not have / would not have] sprained your ankle if you'd been looking
+where you were going.
+
+[would not have]
+
+4- I'd really miss if you [went / would go] to live in London.
+[went]
+
+5- Vicki [had / would ] have more friends if she didnt complain all the time
+[would]
+
+6- I [had been / would have been] really disappointed if I had not got the job.
+[would have been]
+
+7- He [did not be able to / would not be able to ] afford a new car
+if he was not living with his parents.
+
+[would not be able to]
+
+8- We would not have gone to Thailand in June
+if we [knew / had known] it was moonsoon season.
+
+[had known]
+
+9- Jacob would not be so stressed if he [had / would have] a more 
+understanding boss.
+[had]
+
+10- We would not have got lost if we [had stayed/ would have stayed] on the path.
+[had stayed]
+
+
