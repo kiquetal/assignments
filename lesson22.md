@@ -136,3 +136,56 @@ and call the police.Of course this would be impossible if __ (you/not have)
 [did not have]
 your mobile phone with you.
 So you should always keep your phone fully charged by the side of your bed.
+
+
+### Complete using an adjective or a verb
+
+1- It really  __  me when people talk loudly on their
+mobile phone on trains (infuriate)
+
+[infuriates]
+
+2- Looking after my sister's three small children is
+__ for my parents (exhaust)
+
+[exhausting]
+
+3- Ethan was so __ when he failed his driving test (disappoint)
+[disappointed]
+
+4- My girlfriend is scared of flying. The idea of getting
+on a plane __ her (terrify)
+[terrifies]
+
+5- My son is a terrible loser. Not winning something really
+__ him (frustrate)
+[frustrates]
+
+6- You should try the new Asian restaurant on the high street.
+The food is __ (amazed)
+[amazing]
+
+7- I was so __ when my phone rang during the meeting. (embarrass)
+[embarrassed]
+
+8- His first visit to the theatre __ him to take up acting (inspire)
+[inspired]
+
+9- I find the London Underground quite __ 
+I've got on the wrong train many times (confuse)
+[confusing]
+
+10- We were __ that so many people came to our party (thrill)
+[thrilled]
+
+
+b- Complete the table
+
+| verb | Adjective | other adjective|
+| ---- | --------- | ---------------|
+| delight | delighted | delightful |
+| impress | impressed | impressive |
+|offend | offended | offensive |
+| scare | scared | scary |
+|stress | stressed | stressful |
+
