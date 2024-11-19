@@ -189,3 +189,42 @@ b- Complete the table
 | scare | scared | scary |
 |stress | stressed | stressful |
 
+1- He was __ when the teacher suggested he might have cheated in the exam
+[offended]
+
+2- We were __ when we received a surprise visit from some old friends.
+[delighted]
+
+3- She gave such an __ performance in the film that I think 
+she might win an Oscar
+[impressive]
+
+4- I'm __ with your English. You speak very well 
+[impressed]
+
+5- The bridge started to move from side to side as we
+were crossing which was quite __
+
+[scary]
+
+6- SHe's bit __ at the moment because she's looking after her sister's
+children as well as her own.
+
+[stressed]
+
+7- I found his sexist comments very __
+
+[offensive]
+
+8- Joe's __ of small spaces- he never uses lift
+[scared]
+
+9- My nieces are __ - they're very sweeet, and they're always
+making things for me
+
+[delightful]
+
+10- My boss is good at staying calm in __
+situations
+
+[stressful]
