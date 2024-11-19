@@ -99,3 +99,40 @@ They would have understood the film if they had read the book
 8- I don't earn  lot of money, so I can't buy my own flat
 If I earned more money, I would buy my own flat
 
+### Complete the text with the correct verb
+
+1- [] (you/be) prepared if there was an emergency on your plane?
+[would you be]
+
+Think about the last time you flew. Did you pay attention to the safety
+demostration? If __ (you/not go) sleep, you would have heard the flight
+[you had not gone]
+
+attendant explain the location of the emergency exits.
+The information is vital. If there had been a fire, 
+__ (you/have) only about 90 seconds to get off the plane.
+[ you would have]
+It's unlikely that there will be an emergency, but if there is, on your flight,
+but if there is, the most important thing is to be ready.
+
+Would you know what to do if __ (you/ get lost) in the mountains?
+[you got lost]
+The number one survival tip is to stop walking and wait to be rescued.
+In research done in Canada, however, only two out of 800 lost people
+actually did this. If  __ (the others/ not keep) walking,
+[had not kept]
+rescue services would have found them much more quickly. If they had
+waited in a open space, __ (a helicopter/see) them immediately.
+[a helicopter would have seen]
+The most important thing when you go hiking is to tell someone
+where you are going , so that you can be rescued if anything goes wrong.
+
+What __ (you/do) if you heard somebody in your house in the middle of the night?
+[ would you do]
+Imagine you woke up and there was someone in the kitchen.
+The worst thing you could do is confront the intruder because he might
+have a weapon. Instead you should lock yourself and your family inside a bedroom
+and call the police.Of course this would be impossible if __ (you/not have)
+[did not have]
+your mobile phone with you.
+So you should always keep your phone fully charged by the side of your bed.
