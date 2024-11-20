@@ -51,3 +51,31 @@ I wish I did not have to work this weekend
 10- I have a lot f books, but I don't have time to read.
 I wish I had time to read
 
+Rewrite the sentence beginning with I wish + past perfect
+
+I regret having written that email
+I wish I had not written that email
+
+1- I regret not seeing Prince live
+I wish I had seen Prince live
+
+2- He regrets not learning to cook at school
+He wishes he had learned to cook at school
+
+3- Do you regret buying a second-hand car?
+Do you wish you had not bought a second-hand car?
+
+4- Jenny regrets marrying her first husband
+Jenny wishes she had not married her first husband
+
+5- My parents regret moving to the country.
+My parents wish they had not moved to the country
+
+6- Does Tom regret not studying law?
+Does Tom wish he had studied law?
+
+7- I regret having my hair cut so short
+I wish I had not had my hair cut so short
+
+8- They regret not going to the wedding
+They wish they had gone to the wedding
