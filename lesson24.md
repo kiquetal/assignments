@@ -40,3 +40,38 @@ h- I wish I __ that seafood
 b- Read the situation and write sentences beginning
 with I wish + past perfect
 
+1 I took the train to work,but it broke down and I was
+late
+
+I wish I had not taken the train to work
+
+2- I left my mobile on my desk, and now it isn't there
+
+I wish I had not left my mobile on my desk
+
+3- I did not give my boss the report on time, and now he' s annoyed
+with me
+
+I wish I had given my boss the report on time
+
+4- My boyfriend did not call me last night, and now I'm w
+
+I wish my boyfriend had called me last night
+
+5- My friend did not invite me to her wedding, and now I'm upset
+
+I wish my friend had invited me to her wedding
+
+6- We lost our last basketball mathc, so we won't be playing in the final
+
+I wish we had not lost our last basketball match
+
+7- I was rude to my mother, and now she's offended
+
+I wish I had not been rude to my mother
+
+8- My son woke me up in the middle of the night, 
+and I couldn't get back to sleep
+
+I wish my son had not woken me up in the middle of the night
+
