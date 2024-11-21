@@ -75,3 +75,34 @@ and I couldn't get back to sleep
 
 I wish my son had not woken me up in the middle of the night
 
+### Correct the mistakes in the highlighted phrases
+
+I can't get used to getting up so early [ok]
+She isn't used to have a big dinner in the evening [x]
+She isn't use to having a big dinner in the evening
+
+1- When we were children, we did not used to like having  our hair washed [x]
+we did not use to like having our hair washed
+
+2- When we visited our British friends in London,
+we could not get used to have lunch and dinner so early. [x]
+we could not get used to having lunch and dinner so early
+
+3- Have you got used to living in the country, or do you still miss the city? [ok]
+
+4- I'm really sleepy this morning. I'm not used to going
+to be so late. [ok]
+
+5- There used to be a cinema in our village, but it closed down three years ago [ok]
+
+6- Paul would have very long hair when he was younger [ok]
+
+7- I don't start work until 9.30 so I use to get up at 8.30 [ok]
+
+8- Did you use to wear a uniform to school? [ok]
+
+9- It's taking me a long time to be used to living on my own [ok]
+
+10- When I had exams at university, I would stay up all nigth revision [ok]
+
+
