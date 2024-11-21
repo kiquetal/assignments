@@ -36,3 +36,7 @@ g- I wish I __ a thicker sweater
 
 h- I wish I __ that seafood
 [I had not eaten]
+
+b- Read the situation and write sentences beginning
+with I wish + past perfect
+
