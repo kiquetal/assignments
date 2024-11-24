@@ -70,3 +70,47 @@ university?
 when he starts his new job.
 
 10- People used to [talk] to friends in person, not online
+
+#### Grammar
+
+a- Use the correct word
+
+1- Before my sister had children, shed used to [sleep/ sleeping]
+for eight hours every night
+[sleep]
+
+2- When we moved to Britain from Poland, we weren't used to
+[drive/ driving] on the left
+
+[driving]
+
+3- Chris got divorced last year, but he soon got used to 
+[live/ living] on his own.
+[living]
+
+4- I [used to /use to]  know her quite well, but we lost
+touch after university
+[used to]
+
+5- Max [would / used to ] have a beard when he was a student.
+[used to]
+
+6- My parents are slowly getting used to [be / being] retired.
+
+7- My new job is exhausting. I'm not used to [work/ working]
+working so har.d
+
+8- Did you use to [play / playings] a musical instrument at school?
+[play]
+
+9- When Lily was a teenager, she [used to /was used to] eat
+pizza almost every day
+
+[used to]
+
+10- When I was a child, my mum [would / was used to]  read
+to me every night before I went to bed.
+[would]
+
+
+
