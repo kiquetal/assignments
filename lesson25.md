@@ -40,3 +40,33 @@ No they haven't They always come on Mondays, but
 [basically / in fact/ strangely] they haven't been today
 [strangely]
 
+b- Complete the sentence with the infinitive or gerund
+of a verb from the list
+
+[be ,cook ,go ,have ,live ,look after ,play ,study ,talk, use ]
+
+1- I used to [play] basketball quite well when I was a teenager
+
+2- Neil is a chef, so he's used to [cooking] for a lot of people.
+
+3- My sister has got used to [living] in New York now,
+though she did not like it at first.
+
+4- My grandparents did not use to [have] a phone when 
+they were first married.
+
+5- I don't think I could get used to [being] a total vegetarian
+
+6-  When I was a child, my whole family would [go]
+for a walk every Sunday afternoon.
+
+7- Emma has never lived on her own before, so she isn't used
+to [looking after] herself.
+
+8- Did you use to [study] with music on when you were at
+university?
+
+9- Ben will have to get used to [using] public transportation
+when he starts his new job.
+
+10- People used to [talk] to friends in person, not online
