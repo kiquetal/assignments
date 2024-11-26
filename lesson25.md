@@ -96,9 +96,11 @@ touch after university
 [used to]
 
 6- My parents are slowly getting used to [be / being] retired.
+[being]
 
 7- My new job is exhausting. I'm not used to [work/ working]
-working so har.d
+working so hard
+
 
 8- Did you use to [play / playings] a musical instrument at school?
 [play]
@@ -112,5 +114,56 @@ pizza almost every day
 to me every night before I went to bed.
 [would]
 
+#### Workbookk 42 Act 3
+1 - I tried not to [yawn] but I was tired and I could not help it.
 
+2- We were cold in bed, so we got a [blanket] from the cupboard.
 
+3- She has to wear earplugs at night because her husband [snore]
+
+4- I was feeling [sleepy] so I went to bed early.
+
+5- My grandmother takes [sleeping pills] to help her to sleep.
+
+6- If I get up early I try to have a [nap] after lunch
+
+7- It was lovely and warm in the bed because there was a 
+nice [duvet] on it.
+
+8- I was so tired that I fell asleep as soon as I put my head on
+the [pillow]
+
+9- James has [insomnia] and he finds it difficult to sleep at night.
+
+10- It's very hot in the summer where we live, so we only 
+have a [sheet] on the bed.
+
+### Match 1-9 to 
+
+1- Our neighbours often keep [f]
+
+2- My partner is a light [e]
+
+3- I did not hear last night's storm- I always sleep [h]
+
+4- Before I travel, I often have [a]
+
+5- On weekdays, I always set [d]
+
+6- Our children were [g]
+
+7- Apparently, I used to sleepwalk when I was a child; [i]
+
+8- I often fall [b]
+
+9- If you oversleep, [c]
+
+a- nightmares about missing my flight.
+b- fast asleep by the time we got home.
+c- you'll miss your bus.
+d- the alarm for seven o'clock
+e- sleeper- the lightest noise wakes him up.
+f- us awake with their loud music
+g- asleep during long coach journeys
+h like a log
+i one day my mother found me in the garden!

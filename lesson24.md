@@ -97,12 +97,17 @@ to be so late. [ok]
 
 6- Paul would have very long hair when he was younger [ok]
 
-7- I don't start work until 9.30 so I use to get up at 8.30 [ok]
+7- I don't start work until 9.30 so I use to get up at 8.30 [x]
+I don't start work until 9.30 so I used to get up at 8.30
+
 
 8- Did you use to wear a uniform to school? [ok]
 
-9- It's taking me a long time to be used to living on my own [ok]
+9- It's taking me a long time to be used to living on my own [x]
+It's taking me a long time to get used to living on my own
 
-10- When I had exams at university, I would stay up all nigth revision [ok]
+10- When I had exams at university, I would stay up all night revising [ok]
 
+
+### 
 
