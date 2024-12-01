@@ -59,5 +59,25 @@ appointment at the hairdresser's.
 self-employed until recently. (work)
 [working]
 
-6- 
+Vocabulary
 
+a- Complete the sentences with an adjective expressing a feeling.
+
+1- Our son played brilliantly in the concert ! We felt very
+[proud]
+
+2- I'm feeling a bit __ I really miss my family
+[homesick]
+
+3- Thanks for lending me the money. I'm very __
+[grateful]
+
+4- I should not have bought that bag- it was so expensive.
+Now I feel really __
+[guilty]
+
+5- When I head that that I'd won the prize I was completely
+__ I could not say anything
+[stunned]
+
+b-
