@@ -80,4 +80,66 @@ Now I feel really __
 __ I could not say anything
 [stunned]
 
-b-
+b- Complete the sentences with the correct form of the bold word
+
+1 That walk was __ . I need a good rest now [exhaust]
+[exhausting]
+2 I was really __ when I read Tim's email. [shock]
+[shocked]
+3- You really __ me at the party last night [embarrass]
+[embarrassed]
+
+4- It's very __ when you think that you are going to miss your flight. [stress]
+[stressful]
+
+5- It __ me when people who don't know me use my first name [annoy]
+[annoys]
+
+6- Last night's concert was really __ The orchestra did not play well at all.
+[dissapoint] 
+[dissapointing]
+
+7- It always __ me that people actually enjoy doing risky sports [amaze]
+[amazes]
+
+8- We were __ when we heard the news [horrify]
+[horrified]
+
+9- What yoy said to Ruth was rather __. I think you should apologize [offend]
+[offensive]
+
+10- It was an incredibly __ film [scare]
+[scary]
+
+c- Complete the missing words.
+
+1 Could I have an extra p__ for my bed, please?
+[pillow]
+
+2- My husband says I s__ really loudly at night
+[snore]
+
+3- I did not sleep last night, so I'm going to have a n__
+now
+[nap]
+
+4- Last night I had a horrible n__ I dreamt that I was lost in the jungle.
+[nightmare]
+
+5- Don't forget to s__ the alarm for tomorrow morning
+[set]
+
+d- Write the words for the definitions
+
+1 __ the person who directs an orchestra
+[conductor]
+2 __ a group of people who sing together.
+[choir]
+3 __ a stringed instrument that you hold between your knees
+[cello]
+
+4 __ a woman who sings with a very high voice
+[soprano]
+
+5 __ an electronic musical instument, like a piano
+[keyboard]
