@@ -27,7 +27,7 @@ I wish I had learned to play the piano when I was younger
 
 7- I hate seeing your dirty clothes on the floor.
 
-I wish I didn't see your dirty clothes on the floor
+I wish you wouldn't leave your dirty clothes on the floor
 
 8- After living in London for a year I still find driving on the left difficult.
 
@@ -39,4 +39,25 @@ When I was a child. I used to have very long hair
 10- I get up very early, but it's not a problem for me
 
 I'm used to waking up very early
+
+### Complete the sentences with the correct form of the bold verb.
+
+1- I don't remember __ you before. (meet)
+[meeting]
+
+2- My hair needs __ (cut).I'm going to book an
+appointment at the hairdresser's.
+[cutting]
+
+3- We managed __ to the airport on time (get)
+[to get]
+
+4- Please try __ late tomorrow. (not be)
+[not to be]
+
+5- My sister isn't used to __ in such a big company. She was
+self-employed until recently. (work)
+[working]
+
+6- 
 
