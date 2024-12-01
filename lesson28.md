@@ -71,4 +71,32 @@ You [must have used] too much sugar
 10- It definitely was not my phone that rang in the cinema
 Mine was on silent. It [could not have been] my phone
 
+b- Respond to the first sentence using should/ shouldn't have or ought/ oughtn´t to have + 
+a ver from the list
 
+[ buy, drive, go, invite, learn, sit take, write]
+
+A We couldn't understand anybody in Paris
+You [should have learned] some French before going.
+
+B Tom told me the date of hist party, but I've forgotten it
+You [should have written] it down
+
+C Sorry I'm late.The traffic was terrible
+You [ should not have driven] here. The metro is faster
+
+D Amanda was rude to everyone at my party.
+You [should not have invited] her.You know what she's like
+
+E I don´t have any money left after going shopping
+You [should not have bought] so many shoes
+
+F You look really tired.
+I know. I [should have gone] to bed earlier last night
+
+G The chicken's still frozen solid.
+I know. You [should have taken] it out of the freezer earlier
+
+H I think I've burned my face.
+I'm not surprised. You [should not have sat] in the sun all afternoon
+without any suncream
