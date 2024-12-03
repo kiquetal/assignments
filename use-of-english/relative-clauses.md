@@ -28,5 +28,16 @@ ill/until
 
 up to a point of time
 
+As she was driving home, she had a terrible accident.
+
+Driving home, she had a terrible accident.
+
+As I was walking along, I felt that someone was following me
+Walking along, I felt that someone was following me.
+
+As I closed the door, I remembered where my keys were
+
+Closing the door, I remembered where my keys were.
+
 
 
