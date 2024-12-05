@@ -41,3 +41,4 @@ Closing the door, I remembered where my keys were.
 
 
 
+Will can be used after *when* only if it is a question word
