@@ -1,5 +1,53 @@
 ### UNit 03
 
+### Complete with prepositions
+
+Day
+
+__ this day and age
+[in]
+
+day __ day
+[by/ after]
+
+Year
+
+all year __
+[round]
+
+year __ year
+[by/ after]
+
+__ this time of the year
+[at]
+
+Time
+
+__ a period of time
+[for]
+
+__ time to time
+[from]
+
+__ the first time
+[for]
+
+__ the right time
+[at]
+
+__ sb's free time
+[in]
+
+__ no time
+[in]
+
+have no time __ 
+[for]
+
+take time __ work
+[off]
+
+
 #### Page 26
 
 Complete the sentences with the collocations / expressions
@@ -8,9 +56,10 @@ Complete the sentences with the collocations / expressions
 in time, pass the time, ahead of its time, time and time again, for the time being]
 
 1- Despite technical problems, the flight left __ 
-
+[on time]
 
 2- We'll be getting a new printer next month. So __, we have to put up with this one
+[for the time being]
 
 3- Most engineers agreed that the car's design was __
 [a head of its time]
@@ -37,3 +86,81 @@ in time, pass the time, ahead of its time, time and time again, for the time bei
 10- I have been sleepy __ today/ I don't know what's the matter with me
 
 [all day long]
+
+
+### Read the sentences and complete them with the correct form of the verbs
+hold, run, catch, or keep
+
+1- The stuedent was __ in the act of cheating by the examiner
+[caught]
+
+2- I just need you to __ an eye on Sam while I go out
+[keep]
+
+3- Jenny will certainly __ everyone's attentnion with that dress she's wearing
+[catch]
+
+4- Blue eyes and red hair __ in my ramily. Only my aunt has brown yees
+[run]
+
+5- When my grandmother was in hospital, I used to __ her company in the afternoons
+[keep]
+
+6- Mary i smoving to another city, but we promised to __ in touch with each other
+[kkep]
+
+7- __ a business requires many skills and expertise
+[RUn]
+
+8- You can't rely on ROger. Actually he's the kind of person that can't __
+a promise 
+[keep]
+
+9- The winner of the marathon had to __ his breath before speaking to the journalists
+[hold]
+
+10- Please __ in mind that smoking is not allowed in this building
+
+[keep]
+
+11- We all __ our breath when the winnerof the competition was being announced
+[held]
+
+12- As I was running to __ the bus, I slipped and fell
+[catch]
+
+13- Can you __ a secret?  Jane is organizating a surprise party for Kevin's birthaday
+[keep]
+
+14- The children __ hands while walking down the street.
+[held]
+
+
+#### 
+
+1- We looked after Ben's house while he was on holiday
+[take care of]
+
+2- We all looking forward to the opening game of the season
+[expect sth pleasant to happen]
+
+3- The authorities promised to look into the claims of corruption
+
+[investigate]
+
+4- I looked over your essay and can suggest some improvements
+[inspect quickly]
+
+5- Look out! The pavement is broken and you might trip
+
+[warn sb to be careful]
+
+6- Look up the meaning of the word in the dictionary
+
+[try find in a book]
+
+7- John looks down on people who arent rich as he is
+[have a poor opinion of]
+
+8- Children often look up to sports heroes
+[respect, admire]
