@@ -107,17 +107,17 @@ hold, run, catch, or keep
 [keep]
 
 6- Mary i smoving to another city, but we promised to __ in touch with each other
-[kkep]
+[keep]
 
 7- __ a business requires many skills and expertise
-[RUn]
+[Running]
 
 8- You can't rely on ROger. Actually he's the kind of person that can't __
 a promise 
 [keep]
 
 9- The winner of the marathon had to __ his breath before speaking to the journalists
-[hold]
+[cath]
 
 10- Please __ in mind that smoking is not allowed in this building
 
