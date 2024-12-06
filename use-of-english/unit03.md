@@ -165,4 +165,50 @@ a promise
 8- Children often look up to sports heroes
 [respect, admire]
 
-#### 
+### Fill with check, watch, show
+
+1- We were told to check in at the airport as early as possible
+[report one's arrival at a hotel/airport]
+
+2- Guest are kindly remined to check out by 12 o'clock
+[paty the bill and leave]
+
+3- The tourists were told to watch out for pickpockets
+[be careful about]
+
+4- The older children were told to watch over the younger ones
+[care for sb or sth, especially because it is your responsibility]
+
+5- The man was showing off his new sports car to his friends
+[try to make people notice and admire]
+
+6- Everybody showed up at the party on Saturday night
+[arrive, appear]
+
+
+### Read the following sentences and complete them with prepositions
+
+1- Did you know __ the surprise party?
+[about]
+
+2- Are you familiar __ the company's no smoking policy?
+[with]
+
+3- Do you like the taste __ red wine more than that of white wine?
+[of]
+
+4- He is feared by everyone in the area. He's known __ 'The cleaner'
+[as]
+
+5- I'm relly keen __ the idea of spending my holiday on an island in the Mediterranean
+[on]
+
+6- This village looks familiar __ me. Have we been here before?
+[to]
+
+7- A rise __ inflation would have negative consequences for the country's economy
+[in]
+
+8- I did not like olive oild but I've developer a taste __ it now 
+that I'm living in Spain
+[for]
