@@ -237,5 +237,31 @@ that I'm living in Spain
   - usually after the verb
   - after the verb to be
   - after the first auxiliary verb
-  Example: She is 
+  Example: She is quickly running
+  
+#### Irregular forms
 
+Positive: good/well, bad/badly, old, far, much/many, little
+Comparative: better, worse, older, farther/further, more, less
+Superlative: the best, the worst, the oldest, the farthest/furthest, the most, the least
+
+
+#### As/like
+
+like + noun/pronoun/-ing form 
+Use: similarity
+Example: She looks like her mother
+
+as + subject + verb
+Use: similarity
+Example: She sings as her mother does
+
+as+ article + noun 
+Use: function
+Example: She works as a teacher
+
+
+before the positive degree:
+very,too,pretty,most,rather,quite,fairly
+
+Example: 
