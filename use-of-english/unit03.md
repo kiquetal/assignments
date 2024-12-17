@@ -212,3 +212,30 @@ a promise
 8- I did not like olive oild but I've developer a taste __ it now 
 that I'm living in Spain
 [for]
+
+
+#### Adverbs
+
+- Frequency: always, usually, often, sometimes, rarely, never
+ Rules: 
+  - Before the main verb
+  - After the verb to be
+  - After the first auxiliary verb
+
+
+- Degree: very, quite, rather, fairly, extremely, absolutely, completely, totally, enough, too
+  Rules:
+  - usually before the word they modify
+  - a + rather + adjective + noun
+  - rather + adjective + noun
+  - a quite + adjective + noun
+  - quite + adjective + noun
+  - a fairly + adjective + noun
+
+- Manner: well, badly, fast, slowly, hard, carefully, carelessly, easily, quickly, quietly, loudly
+  Rules:
+  - usually after the verb
+  - after the verb to be
+  - after the first auxiliary verb
+  Example: She is 
+
