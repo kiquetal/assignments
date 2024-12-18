@@ -264,4 +264,49 @@ Example: She works as a teacher
 before the positive degree:
 very,too,pretty,most,rather,quite,fairly
 
-Example: 
+Example:  Considering you've just had an operation, you look fairly well
+
+### Use of THE
+
+- specific nouns or nouns that have been mentioned before
+Example: She bought two T-shirt and a dress yesterday but 
+she likes the dress best.
+
+-name of seas,rivers, group of islands, mountains, ranges,
+countries, cinemas theathres, museums, restaurants, hotels,
+intitutions
+Example: The Amazon, The Alps, The United States, The Pacific Ocean
+
+- name of families and nationalities
+Example: The Smiths, The French
+
+- adjectives referring to classes of people
+Example: The rich, The poor
+
+-musical instruments,dances, inventions
+Example: The piano, The tango, The telephone
+
+#### THE is no t used before:
+
+- nouns referring to something general or not mentioned before
+Example: I like music
+
+-name of people, streets, cities, islands, countries, continets, mountains
+religious holiday, day  of the week, months, squares, parks,
+lakes, station, magazine,sports, games, colours, school subjects, languages
+Example: London, John, Monday, Africa, Christmas, English, football, red, history
+
+-meals
+Example: Breakfast, lunch, dinner
+
+- means of transport
+Example: By bus, by car
+
+-the words bed,court, church, home, hospital, prison,school,university,
+work
+Example: She went to bed early because she was exhausted
+She always makes the the bed in the morning
+
+- pubs, restaurantes, hotels, shops, banks whose names
+- include the name of their founder or another proper name
+Example: Harrods, McDonald's, Barclays Bank
