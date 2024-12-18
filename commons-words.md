@@ -34,3 +34,13 @@ It seems to me that Ex: It seems to me that we should go
 Speaking for myself Ex: Speaking for myself, I think we should go
 
 To my mind Ex: To my mind, the film was great
+
+
+### Reply questions
+
+Did you? Were you good?
+
+Haven't you? It's really nice
+
+
+
