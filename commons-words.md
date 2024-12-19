@@ -83,7 +83,11 @@ If I had studied harder, I could have passed the exam
 Even if he'd been taller, he
 wouldn't have been able to reach the shelf
 
+- To talk about aptitude and capacity
+for doing something
+be capable of + -ing
 
+She's capable of doing the job
 
 
 
