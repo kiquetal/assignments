@@ -37,10 +37,54 @@ To my mind Ex: To my mind, the film was great
 
 
 ### Reply questions
+A: I used to play soccer when I was a child
+B: Did you? Were you good?
 
-Did you? Were you good?
+A: I've been to Paris
+B: Haven't you? It's really nice
 
-Haven't you? It's really nice
+A: I'm going to the cinema tonight
+B: Are you? What are you going to see?
+
+A: I don't like fish
+B: Don't you? I love it
+
+A: I will be late
+B: Will you? Why?
+
+### Can and able to
+
+- For future ability
+
+      We use the form "be able to" 
+      Example: I will be able to speak French when I finish my course
+
+
+- Past Ability
+Both forms:
+
+      Before his accident, Ben could jump very high
+      Before his accident, Ben was able to jump very high
+
+
+Although she had lost a lot of blood,
+the doctors were able to save her
+
+Despite the difficult conditions, the surgeons
+managed to save the patient
+They succeeded in saving the patient
+
+- Conditional ability
+To talk about a hypothetical ability in the past,
+we usually use could + have + past participle 
+or would be able to
+
+If I had studied harder, I could have passed the exam
+Even if he'd been taller, he
+wouldn't have been able to reach the shelf
+
+
+
 
 
 
