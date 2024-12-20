@@ -17,7 +17,7 @@ would have given you a lift.
 - after who, what, when, where, why,how
 
 
-- regular past action 
+- regular past action My neighbour's dog would howl every day.
 
 - preference: using rather or sooner + than 
 
