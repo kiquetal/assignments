@@ -286,7 +286,7 @@ Example: The rich, The poor
 -musical instruments,dances, inventions
 Example: The piano, The tango, The telephone
 
-#### THE is no t used before:
+#### THE is not used before:
 
 - nouns referring to something general or not mentioned before
 Example: I like music
@@ -310,3 +310,12 @@ She always makes the the bed in the morning
 - pubs, restaurantes, hotels, shops, banks whose names
 - include the name of their founder or another proper name
 Example: Harrods, McDonald's, Barclays Bank
+
+
+
+### as/like
+
+like +  noun + pronoun + -ing form  = He waved the flag like a sword
+as + subject + verb                 = She advised her husband to do as he was told 
+
+AS + ARTICLE + NOUN                 = she works as a nurse / he used his coat as a blanket.
